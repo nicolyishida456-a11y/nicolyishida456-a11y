@@ -42,3 +42,6 @@ Obrigada pela visita!
 ### Você pode entrar em contato comigo📧
 
 nicolyishida546@gmail.com
+
+![](https://media1.tenor.com/m/nrUSvJyyjOkAAAAC/cardcaptor-sakura.gif)
+
